@@ -30,6 +30,5 @@
 ## [ryoko v2](https://drive.google.com/file/d/1kCRnwe-F_-y285U-_IHOuQExTtbR50yo/view?usp=sharing)
 ![screenshot5531](https://user-images.githubusercontent.com/111258721/184569228-66e3c334-1d5e-4bd5-89d2-41eba097967c.jpg)
 ## [ryoko775](https://drive.google.com/file/d/1EHqi2hmmsLwym-zl-ifMYASwB4vVK2dG/view?usp=sharing) | [different cursor](https://drive.google.com/file/d/1o_HoM0NcyVAac295NA8tUIVGyN8oCL-s/view?usp=sharing)
-![screenshot5532](https://user-images.githubusercontent.com/111258721/184569299-7706970c-7c1!) [screenshot5533](https://user-images.githubusercontent.com/111258721/184569472-1852d346-5de1-473c-b08e-fc5a26222ad8.jpg)
-4-452f-b106-1ef63a5b93e9.jpg)
+![screenshot5532](https://user-images.githubusercontent.com/111258721/184569544-ed75d945-dffb-485a-89a1-e4004db9c354.jpg) ![screenshot5533](https://user-images.githubusercontent.com/111258721/184569555-90da6eea-fb78-4613-baa4-8aa5832e95d3.jpg)
 
