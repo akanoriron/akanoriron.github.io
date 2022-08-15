@@ -21,3 +21,7 @@
 ![screenshot5525](https://user-images.githubusercontent.com/111258721/184568458-b5d08e05-c3d1-475f-b1df-611da478b962.jpg)
 ## [morgan very small edit](https://drive.google.com/file/d/1I1qVdTvoYQ8gtXWJDwPbWaCEBR9jUykG/view?usp=sharing)
 ![screenshot5527](https://user-images.githubusercontent.com/111258721/184568549-5b91f6ac-07b2-4d9b-87bc-002342ce57a7.jpg)
+## [strange isnt it](https://drive.google.com/file/d/1mr7vCh0FuEdO1PHm5HoJF4WssxUBHL3b/view?usp=sharing)
+![screenshot5323](https://user-images.githubusercontent.com/111258721/184568777-a6b63da5-5b49-4107-98bc-350076c262c9.jpg)
+## [^-^](https://drive.google.com/file/d/15ux95nXQtZbeV-IDHTBiOF653YOxUC6c/view?usp=sharing) | [for pussies](https://drive.google.com/file/d/10EDNxU3AJWnpH8PMu6wM1TzqDGo56tUd/view?usp=sharing)
+![screenshot5530](https://user-images.githubusercontent.com/111258721/184568998-a52e3893-7012-4354-9e04-486f6474e0ec.jpg)
