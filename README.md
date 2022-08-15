@@ -25,3 +25,11 @@
 ![screenshot5323](https://user-images.githubusercontent.com/111258721/184568777-a6b63da5-5b49-4107-98bc-350076c262c9.jpg)
 ## [^-^](https://drive.google.com/file/d/15ux95nXQtZbeV-IDHTBiOF653YOxUC6c/view?usp=sharing) | [for pussies](https://drive.google.com/file/d/10EDNxU3AJWnpH8PMu6wM1TzqDGo56tUd/view?usp=sharing)
 ![screenshot5530](https://user-images.githubusercontent.com/111258721/184568998-a52e3893-7012-4354-9e04-486f6474e0ec.jpg)
+## [drum uberlegen](https://drive.google.com/file/d/1QdGLvKne2hFT3U0UonfO_ApGTCN0VjPN/view?usp=sharing)
+![screenshot4516](https://user-images.githubusercontent.com/111258721/184569129-4cad724f-284e-41a6-95ba-af8d86111e71.jpg)
+## [ryoko v2](https://drive.google.com/file/d/1kCRnwe-F_-y285U-_IHOuQExTtbR50yo/view?usp=sharing)
+![screenshot5531](https://user-images.githubusercontent.com/111258721/184569228-66e3c334-1d5e-4bd5-89d2-41eba097967c.jpg)
+## [ryoko775](https://drive.google.com/file/d/1EHqi2hmmsLwym-zl-ifMYASwB4vVK2dG/view?usp=sharing) | [different cursor](https://drive.google.com/file/d/1o_HoM0NcyVAac295NA8tUIVGyN8oCL-s/view?usp=sharing)
+![screenshot5532](https://user-images.githubusercontent.com/111258721/184569299-7706970c-7c1!) [screenshot5533](https://user-images.githubusercontent.com/111258721/184569472-1852d346-5de1-473c-b08e-fc5a26222ad8.jpg)
+4-452f-b106-1ef63a5b93e9.jpg)
+
