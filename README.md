@@ -53,3 +53,10 @@ MOST OLDER SKINS ARE BUGGED (too lazy to fix)!!
 ![screenshot5546](https://user-images.githubusercontent.com/111258721/184571649-e49e44ef-6617-46a8-b228-17929ac687a6.jpg)
 ## [leblos rl as 2022 newest](https://drive.google.com/file/d/1vKPqaqwcJJ9ps2F8AMf7UJK_Y7vCYMWM/view?usp=sharing)
 ![screenshot5547](https://user-images.githubusercontent.com/111258721/184580194-20118753-272b-4e4f-b4e2-4ac2e50b28b7.jpg)
+## [umineko arge ver1](https://drive.google.com/file/d/1IVOSm7pfxlYoaBuQlRaQ6-3Jc1BNuYSA/view?usp=sharing)
+![screenshot5629](https://user-images.githubusercontent.com/111258721/185894204-91ada262-a3a8-4251-9659-835b2a53acfb.jpg)
+## [umineko arge greygold](https://drive.google.com/file/d/1c7JLa5YglBjBxqrVVkKPAUmb-8bYrOq0/view?usp=sharing)
+![screenshot5630](https://user-images.githubusercontent.com/111258721/185894384-5108d934-89e2-404a-b612-1aca1c2bfe8a.jpg)
+## [umineko rainbow](https://drive.google.com/file/d/18-Kw2EqFCqdLbPs-Rv3xX-SuSzIBikm3/view?usp=sharing)
+![screenshot5628](https://user-images.githubusercontent.com/111258721/185894461-94e078b6-263c-43e3-9b1d-28369d1a2f43.jpg)
+
