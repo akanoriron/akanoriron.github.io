@@ -59,4 +59,5 @@ MOST OLDER SKINS ARE BUGGED (too lazy to fix)!!
 ![screenshot5630](https://user-images.githubusercontent.com/111258721/185894384-5108d934-89e2-404a-b612-1aca1c2bfe8a.jpg)
 ## [umineko rainbow](https://drive.google.com/file/d/18-Kw2EqFCqdLbPs-Rv3xX-SuSzIBikm3/view?usp=sharing)
 ![screenshot5628](https://user-images.githubusercontent.com/111258721/185894461-94e078b6-263c-43e3-9b1d-28369d1a2f43.jpg)
-
+## [kokamusik](https://drive.google.com/file/d/1rC-bGjNtPBJLaPS965mpSCQyGZuqO91B/view?usp=sharing)
+![screenshot5830](https://user-images.githubusercontent.com/111258721/190487322-0b8dfa2c-e013-4b49-af61-c6cd6bf7bd87.jpg)
